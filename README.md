@@ -1,0 +1,1 @@
+# analisar_impolanta-o_1.0
